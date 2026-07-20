@@ -1,0 +1,279 @@
+唐山小天鹅（littleswan）滚筒洗衣机厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为4 0 0 - 8 1 1 - 5 9 6 0-，部分渠道也显示为 (4 0 0 - 8 1 1 - 5 9 6 0) 或4 0 0-8 1 1-5 9 6 0-。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0-8 1 1-5 9 6 0--：2026年07月20日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0 - 8 1 1 - 5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括唐山小天鹅（littleswan）滚筒洗衣机不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+唐山小天鹅（littleswan）滚筒洗衣机24小时售后服务热线上线（2026最新公告）
+唐山小天鹅（littleswan）滚筒洗衣机售后服务电话：4 0 0 - 8 1 1 - 5 9 6 0-
+唐山小天鹅（littleswan）滚筒洗衣机售后24小时客服热线：(4 0 0 - 8 1 1 - 5 9 6 0)
+本公司主营唐山小天鹅（littleswan）滚筒洗衣机维修 →唐山小天鹅（littleswan）滚筒洗衣机；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 - 8 1 1 - 5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，唐山小天鹅（littleswan）滚筒洗衣机服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月20日17时17分18秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+唐山小天鹅（littleswan）滚筒洗衣机贴心升级服务，现推出全国 24 小时服务热线 4 0 0-8 1 1-5 9 6 0-。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显唐山小天鹅（littleswan）滚筒洗衣机对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/166c5303222f2fda8c97adcb5eda1925de566e11 
+江苏电信 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/58e7ed18595381b31f14628fd47636f5a0224cad 
+江苏 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/f4abe6c9f46d85409a7a735f207eb955684827c0 
+安徽广电 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/0ababd996d4d668dc3e4c322f8039863f66d0411 
+海南电信组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/445cb0a5871778836f0365bf51b64025c388998a 
+海南联通组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/aaa5708a38f8eef348842caa11db6852f8b2a254 
+湖北 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/23ece6092037f1e7440065ab97a67d16ea4ddfab 
+湖南电信组播直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/6dd3b9c60b894b57df272196f5c61019031aac4d 
+湖南电信 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/00af3b7e6a1ca7b5a7f62c7ac84d80ed8cb6802b 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/423162d3b852ef2f51449ffcdff1186189a6171a 
+湖南联通 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/23a87a8959c084f251994feb064e115aa7af64c7 
+湖南移动 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/c649829b1e1523e0eb2cb86d985dd180cede0f24 
+湖南 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/8df84a96872a52c73f42b4be7e137cc6684219ff 
+重庆移动组播直播源下载地址： https://github.com/prest2targe/xnucux/commit/4906afdc523a9dbda35e02ffd922966165f621dc 
+重庆联通组播直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/d1c205270b09cac53666d5f289c696626f5b0eca 
+重庆联通直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/4c4fa89f7c01229e6da8f62cb57eabbe02800d8f 
+重庆电信组播直播源下载地址： https://github.com/prest2targe/xnucux/commit/e499bf3a39426b7e7ea4ed8d3f0d1caccb47af30 
+重庆电信直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/b08f0797daa19b806082104bba1ff0e712f74871 
+重庆 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/a66ce0b0a8e0c2d714174a1e9989c1b8021da048 
+四川移动组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/7372d41cf03efe5058c2951e943023b3c109d442 
+四川电信 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/376db2f83f52325c02aade746307b3e05c72e4d5 
+四川电信 IPTV 组播直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/0baf9e46e04422d369624fce4c13f6f44286d682 
+四川广电 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/4270729851c317ff040411fee59e3cc9a0f75e61 
+四川联通组播 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/7f470baddf7aedc867965cf6c9870fa9139ec335 
+四川联通 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/fadde7b47bcc765ec53e003b446c2c118604ba3a 
+四川 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/5580a03a8e9c711f73ae5d923c94d6ced74e7a5b 
+云南电信组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/b63a8a9f77cfd855dc538a08c54ce5d0edd83604 
+云南移动 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/0d84e0d873ccdccc67180988add983b8f2c8c39c 
+云南 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/9f29f2f705e0c2fa66d777331478c4ca7edc0db1 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/7e5d352091674b2746b503ba2d1dd0cd9ec5ce95 
+贵州移动 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/6b69e6a3f8c7283c10173611b75bfdacf6c1bb4f 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/79cd9196bb650ffbe6d45c6f2a1565b9a1d164e8 
+贵州联通 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/992fc3cabfba329246b739e0ffd6ce6677582a76 
+贵州 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/006bdec46dbbfe326d3c199d2084395bafb5c1d8 
+福建联通组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/840d2411d0f9177517e756679c9b45150eb778b4 
+福建联通 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/a086e0698435fd2a1b8bccb1b66e221a860b2265 
+福建移动 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/0c5d07020aa0700e2198ead6d456f5befe90c458 
+福建电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/0748199363be97d6cc2661a7fc427c05ba3abb02 
+福建电信 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/0501a9a2fbd13a9ad4026910182df9d420fd098a 
+福建 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/6f3f132fcca1ff06155173ccd67a68114996b435 
+安徽移动 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/64dbe3e2d23f4eb708de7a4368751d5db65b8592 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/ccf45c6f6094f2e990f89a4e2b184fa3f89cc0e4 
+安徽电信 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/a81c4147b4944b3bda088ba14f2b390817324ac9 
+安徽联通 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/dd682d874aa1d50f6dcdb5b44d0395eb0960d8b8 
+安徽 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/29edd609aa4363dda41c676c7fce4a214b289686 
+陕西地方台直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/34f45450a1e46e7377a0bc21c21ceba6f9f93390 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/5080223973f92401a5c22ad68212bd68f858ffa9 
+陕西电信 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/f7d8430b909280c32eb951585a70519be29f607c 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/27a37f87acb39482b4e99398918d9cb89ca8ce38 
+陕西移动 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/2443764c5ab5a09db4682931a22e745e32ff3b9d 
+陕西 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/3417f5593dbc1bdf7de6d1850a4841474c6bc158 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/8449871a9055069d868b3669aafd959631a7e361 
+甘肃移动 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/7856e62f252c043cd22a1f7d177c4d8e96f718a7 
+甘肃 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/d94d71c5e60f520cfb4c6837666694cb65ed4cb9 
+山西移动组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/9cde62e1b59b6f414c38274e2b5d9fc14d44bb4a 
+山西联通组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/3b0b64c4d3aae1f0f1512e2069af093818b44937 
+山西联通 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/43c5597879f651461c5cb7185979ae18f021e252 
+山西 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/523464e1c2d74c84e8387208288e3d20e2729cc9 
+天津电信组播直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/a1171725253984fc20ccbd905f0fa62d39c4c372 
+天津联通组播直播源下载地址： https://github.com/prest2targe/xnucux/commit/17df48bd78e43da67d2fa9f74242729f10680921 
+天津 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/782150fde38a336bb682e6b493d0869fd48a34b3 
+上海移动直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/67992e2a8be7644d3f1e434aa862889dca95b53a 
+上海联通组播直播源下载地址： https://github.com/prest2targe/xnucux/commit/832de86d3910f3de15e6c3f6f37c278aafa9ec08 
+上海联通直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/b705b3c5f0981fa01949289d543a8c47b0195d23 
+上海电信组播直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/76ff6b63d7a5e4b5778d4eac150ffbd3ee5bd6a9 
+上海电信直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/81e310da57a00cebb5c0b214d698c5210ab09d1e 
+上海 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/960cf789508b076434c9f0a0186f7ef2453858e1 
+北京移动 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/2111977b7dea03453001615122e636974ad08c8e 
+北京移动组播直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/ab71228f69746c948c33eca4f910a9c1d79c4918 
+北京电信组播 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/3099bcef66faccad1d20559a2f26c6768f0ab75d 
+北京联通组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/40790fe66879f3554f6a65bdb5b06906c9e8be29 
+北京联通 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/4ee0ffe1bbbaeb74336a94e21b27bffb71b6b00f 
+北京 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/abc57026864defd142474a97294481ccf54bf23b 
+部分地区的移动可全网通用： https://github.com/r0cch/hfqgyicc/commit/61ea3353ca5509831abf1affcf256b4ddf8125d7 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/mahomandeidec-re/xwbqspvh/commit/a092d7eb7caed9bbcbc9064461b22cba2bd7716f 
+广播电台下载地址： https://github.com/prest2targe/xnucux/commit/383e638876381a1de2c5279f3172881642f03817 
+国内景区直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/6f08b0f8b66ebb123d0fe1bed7678391af43f735 
+轮播华数黑莓下载地址： https://github.com/pakalexunse/qnckpju/commit/d7829c4b5175c853b1ea87f6d49bcee76add8547 
+台湾香港澳门电视台直播源下载地址： https://github.com/prest2targe/xnucux/commit/97e2d5eba5dd2114a18351449891300d0173a42d 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/mahomandeidec-re/xwbqspvh/commit/60705dbc8fe56e033a7f8a56421237cebd94ddb2 
+国外电视台直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/1ee04c5da36fbef247c76886babcd8b88d662f66 
+卫视地方台安徽农大下载地址： https://github.com/r0cch/hfqgyicc/commit/71642ecc8df79344ccb66e9aa4d6a19b869f57fc 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/prest2targe/xnucux/commit/6ab5cbcf0bb1307e46cf8b6ebafeae51f6bbd8e9 
+卫视上海源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/456f0b1b9d21fa15ff289e6713ea1ff8ae276ae5 
+卫视重庆广电 下载地址： https://github.com/r0cch/hfqgyicc/commit/c35b1e65843919be20efb05c12f49670817e0e47 
+卫视百视 TV 下载地址： https://github.com/pakalexunse/qnckpju/commit/e11dc7278686d9df9937b11668f54103520515f9 
+移动 IPv6 直播源下载地址： https://github.com/prest2targe/xnucux/commit/155f7e682e058e9368d5bc9bf634f668b8cf3fb0 
+国内电视台 IPv6 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/00cc5c5053cb841c5b5f70de2d7878256b9e8797 
+各大卫视、上千个地方台： https://github.com/r0cch/hfqgyicc/commit/ed1bc4a24cef867d9ff86914b3660e76aa7f128d 
+国内电视台直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/c9d2e8e9b0230bb75b503856e57651749f92c6a1 
+全国可用直播源： https://github.com/prest2targe/xnucux/commit/2d619e3101820136c393178b5cec0a305af3852a 
+包括完整内容所有已知频道： https://github.com/mahomandeidec-re/xwbqspvh/commit/419bfc8a83d462d33f59484ed950759508ce0dbd 
+除成人内容以外的已知频道： https://github.com/r0cch/hfqgyicc/commit/4b255c1a3a390c4a73f216d91d2dec4641f808b1 
+收集来自世界各地公开可用的 IPTV： https://github.com/prest2targe/xnucux/commit/f739899eb32aebd9701d735dd99d700c91b3f8ce 
+稳定地址： https://github.com/pakalexunse/qnckpju/commit/c2d20a46097b34c823a4b5cb05d2ee5bb3fc6856 
+2026-07-19 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/r0cch/hfqgyicc/commit/11d0a59c5d20bcd67c47a386265d2e4d3f6a8416 
+2026-07-19 更新 IPTV 工具： https://github.com/mahomandeidec-re/xwbqspvh/commit/94bb696f9f490b2bc8363c9141dc549043a56916 
+2026-07-19 更新世界各地 IPTV 频道： https://github.com/prest2targe/xnucux/commit/76b1dd4bb39c9504fe5a8f2e99d5801569199808 
+2026-07-19 更新全国可用直播源： https://github.com/pakalexunse/qnckpju/commit/5dc9cff7c6f19f6d6106bebfd0d5bceeb19f0d47 
+新增各地运营商的 IPTV 地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/f2ec6c06f836cf37bd9b04cd8f9be8f4fb3a4b1b 
+插件推荐： https://github.com/r0cch/hfqgyicc/commit/8f40eb745c0ec5fb973c68c658fe22731a8777aa 
+视频教程增加： https://github.com/prest2targe/xnucux/commit/80bddf2f41b737193158b568abf7039c298022dd 
+咪咕源失效： https://github.com/pakalexunse/qnckpju/commit/006840f95aae46c44e82433856fe4526daa69e88 
+2026-07-19 更新各地运营商 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/9f76322d470b9ff2b1fb51f8f8150bcedc0b01ff 
+2026-07-19 更新台湾香港海外直播源： https://github.com/r0cch/hfqgyicc/commit/d5850f4ab574f58cbef391fb09a409d0c4bcfe25 
+新增辽宁广电直播源： https://github.com/prest2targe/xnucux/commit/deb603f417c157ee40dd3662c0dba40257ba1d76 
+新增江西广电直播源： https://github.com/pakalexunse/qnckpju/commit/dda104f27229f4a816da38dabe1d197f4b910fd8 
+新增湖北广电直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/96485c84f6cb4a897461d3d6c22de175da39fd4e 
+新增中国广电 cctv + 卫视直播源： https://github.com/r0cch/hfqgyicc/commit/d597d890eae4bf6639933855b04df6e9e90a7a3b 
+新增辽宁电信 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/144b68d02662367908592bf08e4b89395ffb316d 
+2026-07-19 更新台湾香港海外直播源： https://github.com/pakalexunse/qnckpju/commit/9470155858f9050698e6d5f9a7355d4a1a66e6fc 
+新增辽宁移动直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/97b415966d634580475807d835af24503ab65e4f 
+新增浙江杭州华数 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/18192de1b89f8113dadcad2a75277a7fee5cc3e5 
+新增广东联通 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/9b71f6af518cbef291252a69efad34c56d387b61 
+新增四川广电 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/804071caca601e5dd3cefbc04c0ec70811b6ad08 
+新增云南电信 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/9e214ecdcd647159e5e2572c0e87c39a3cc75c3a 
+2026-07-19 更新国内电视台直播源： https://github.com/prest2targe/xnucux/commit/a6d718d90d099dc37a7d1cbd938f34f6d2c96b3f 
+新增福建电信 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/8c13257f5926a788c7266d81aa74c612a169a67a 
+新增天途云 CCTV + 卫视： https://github.com/r0cch/hfqgyicc/commit/4e70396aa4d97b81ce6b82bb8a5213d5a1b66032 
+新增腾讯云 CCTV + 卫视： https://github.com/mahomandeidec-re/xwbqspvh/commit/506c7a90feb151d5f4f4fa90468750eea57f3af9 
+新增 CCTV 付费频道直播源： https://github.com/prest2targe/xnucux/commit/cca5dd26fa3d0f7a25667d48632daa584fac9c3f 
+新增广播电台： https://github.com/pakalexunse/qnckpju/commit/5a957c45f19ded7e962f1e4cddf9910b0d762a9d 
+2026-07-19 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/r0cch/hfqgyicc/commit/4ef33b32bab464dad04369d88b9730418a2cd4bd 
+2026-07-19 更新 台湾香港海外直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/0a517af2b6c4e63327fa0064e13b178e372b2ca7 
+2026-07-19 更新 国内电视台直播源： https://github.com/pakalexunse/qnckpju/commit/9143662e865772a747704d217a9e3a88ed91a902 
+国家直播源： https://github.com/r0cch/hfqgyicc/commit/d8e490d6e6deacd6a1966602c0d37b4db3433f49 
+直播源： https://github.com/prest2targe/xnucux/commit/8c6c5e669ac267d2b3b5e2b319c227ca257409dc 
+影视剧场： https://github.com/r0cch/hfqgyicc/commit/086abfe230694fd22884e3f6eca3e442ad7635f3 
+台湾香港澳门： https://github.com/pakalexunse/qnckpju/commit/a723d7684c515a294cbca35ced93b80b11d5cedf 
+国外电视台： https://github.com/mahomandeidec-re/xwbqspvh/commit/97cafb20668d27699c564778a14ea30004148356 
+国内电视台： https://github.com/prest2targe/xnucux/commit/0922df32aa9fcde5952d865fc0358d8c85d94f9d 
+更早期 2026-07-19 更新： https://github.com/r0cch/hfqgyicc/commit/dc2d660bcd972bdd4c29e2041595865af97a29fa 
+各地运营商 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/e24bec5580f41f203da5cffef65eac42308c58bd 
+全国可用直播源： https://github.com/pakalexunse/qnckpju/commit/3a0750378dd3f6363dacd9fc02c30189418cc44f 
+2026-07-19 更新： https://github.com/mahomandeidec-re/xwbqspvh/commit/8101854beb3683e74dab955f1c57fe05e4480eed 
+赞助者： https://github.com/pakalexunse/qnckpju/commit/9c56aba31ba7dfb2c80e73c264db21172d00c966 
+文章： https://github.com/r0cch/hfqgyicc/commit/677f24fe44a633f8d1dbecf6d642f21b813b052c 
+视频教程： https://github.com/mahomandeidec-re/xwbqspvh/commit/5ad9047fc769692e55b62db4885e4e2dea631deb 
+插件： https://github.com/prest2targe/xnucux/commit/6bbd6997d938f95c2e2dfeec4c6647a7ebdd9091 
+工具： https://github.com/r0cch/hfqgyicc/commit/b8a4007201ef0ee230d9a0836149fd356adaf08b 
+URL： https://github.com/mahomandeidec-re/xwbqspvh/commit/321cc685f2948403197e21810fc5f65e5c5f4a6e 
+目录： https://github.com/pakalexunse/qnckpju/commit/c06389c42bd96e8d663514ac1641530423500cdc 
+喀麦隆直播电视频道： https://github.com/prest2targe/xnucux/commit/b6f09dd4ad43354a8b1a78c2a48ea4abcdba342a 
+阿富汗直播电视频道： https://github.com/prest2targe/xnucux/commit/4a0eaf9eafc5e00589061e8b8ef2ff919f32c0e0 
+海地的直播频道： https://github.com/r0cch/hfqgyicc/commit/a2fab57268859d1edea55e0f24b0ce9f6d3c7f69 
+高棉直播和泰国电视，电影和电视剧： https://github.com/mahomandeidec-re/xwbqspvh/commit/89d093b184a6f726395472ef28fefa4ba51bb64b 
+厄瓜多尔直播频道： https://github.com/pakalexunse/qnckpju/commit/042a5e62cd73b64fca0c23c3dd52fc306c55574f 
+玻利维亚直播频道： https://github.com/prest2targe/xnucux/commit/27182d214f555e33c61de81826b5da4b247042d8 
+萨尔瓦多直播频道： https://github.com/r0cch/hfqgyicc/commit/266d81e63e740063fc1d8d8053ae19189649bd43 
+危地马拉直播频道： https://github.com/mahomandeidec-re/xwbqspvh/commit/dd96a04676bc2b3475a7f5ff559124288b6a591e 
+洪都拉斯直播频道： https://github.com/pakalexunse/qnckpju/commit/1e227f8f7039340880e34db4b60bfb298c2348f0 
+多米尼加共和国直播频道： https://github.com/prest2targe/xnucux/commit/11c877b25575c4d02c22f0548435ea3881348959 
+哥斯达黎加直播频道： https://github.com/r0cch/hfqgyicc/commit/b256022b6a4149e9d74e9534afa40e04f2f1a0d3 
+来自世界各地的个电视频道和个摄像机： https://github.com/mahomandeidec-re/xwbqspvh/commit/9d15f39305358520ba6b9bd9f5cde77432b2503a 
+免费数据库： https://github.com/pakalexunse/qnckpju/commit/f72505956aae4b6587e32d26ffa3058e51ed5759 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/prest2targe/xnucux/commit/5a95cd429ea0f388906868f6d6d3ffe2ff6d4896 
+超过个国家地区的个高清频道和： https://github.com/r0cch/hfqgyicc/commit/0384fb9dbcb84d1529f44ce8c58da3f4df84e065 
+超过个直播电视频道影视节目： https://github.com/mahomandeidec-re/xwbqspvh/commit/06aa1f8443b1e51ac56b69d1987416f66c48257c 
+提供商列表： https://github.com/pakalexunse/qnckpju/commit/cd224648e9256370fc0ffb19be6b117752369ebb 
+提供者： https://github.com/prest2targe/xnucux/commit/0bd1ae25e788cdc72dd2ea89ba913dd843082d8d 
+客户端服务器媒体播放器： https://github.com/r0cch/hfqgyicc/commit/95d2c387b7bf3dff1c34e3724dcb0c5bde187d5c 
+支持播放列表文件： https://github.com/pakalexunse/qnckpju/commit/2924e56288ae46519d65a1189ba855231dc2d9e5 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/mahomandeidec-re/xwbqspvh/commit/64bd2f383ab18303165782ce70f19b7ca57a3afa 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/prest2targe/xnucux/commit/2a64ea8eee4140fe0492c5e0651ebd6c64480b5b 
+点 即可： https://github.com/r0cch/hfqgyicc/commit/6c371c4415df4100701d2859729673e38ef1e7de 
+第三行不用管： https://github.com/mahomandeidec-re/xwbqspvh/commit/b642c6765ff084f49eb7d9ebdb4ff26f969d36c9 
+第二行输入上面给你的地址： https://github.com/pakalexunse/qnckpju/commit/561b39890c09232e79efab53face0101c7c80116 
+第一行随意输入一个名字： https://github.com/prest2targe/xnucux/commit/598b771b4b83519b62549d53779d98415abc0526 
+选择 远程播放列表文件： https://github.com/r0cch/hfqgyicc/commit/9bb562d25bcff5dc6381558f9e3882e4fd3a9170 
+打开 点击 号： https://github.com/mahomandeidec-re/xwbqspvh/commit/9705866fa0926e2cbcba72dac96c85e43153c0c9 
+食用指南： https://github.com/pakalexunse/qnckpju/commit/4eda4450e863108d6d43a89c39e8e8c3e7dfb2f9 
+适用于 macOS 的现代媒体播放器： https://github.com/prest2targe/xnucux/commit/d1db3ce57a7971d409c0e2b09c4460b2e5248144 
+直播电视和广播客户端插件： https://github.com/r0cch/hfqgyicc/commit/e7950f832def6938c1690eabd5f9c42a10c9285e 
+具有库支持的免费跨平台媒体播放器： https://github.com/mahomandeidec-re/xwbqspvh/commit/f59138adf06cbc939eaab9524ff74b2c429e35d1 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/pakalexunse/qnckpju/commit/43dcc28228ed57b9d0a63a24aac38275808ad1bc 
+支持 IPTV 流的应用程序： https://github.com/prest2targe/xnucux/commit/9cf34b5929704f9c9d11af3bc492d2fdbed6c082 
+工具： https://github.com/mahomandeidec-re/xwbqspvh/commit/c56f742b45931799eb345aa5f723d7458fa76f6b 
+轮播华数求索爱奇艺 2026-07-19 更新： https://github.com/r0cch/hfqgyicc/commit/03068dd975bdca262ad2f6863f999e539dd2c98c 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/prest2targe/xnucux/commit/316b7db2b45dbc2a2e9a4c3fa2dab6fcc8eb9d52 
+台湾香港海外直播源 2026-07-19 更新： https://github.com/pakalexunse/qnckpju/commit/81b0a9884b53f3affa24a8d3f332df103b7f6eac 
+各大卫视、上千个地方台： https://github.com/r0cch/hfqgyicc/commit/c3110ae73ad4264e018ca8d261b7b770049c7bc5 
+国内电视台直播源 2026-07-19 更新： https://github.com/mahomandeidec-re/xwbqspvh/commit/4a90e04e6779d7f201352be9fd62855fd6e0fcea 
+卫视腾讯云： https://github.com/prest2targe/xnucux/commit/f7945af574d7c1bbed0d1117dc85c9f575c8d239 
+卫视平顶山学院教育网： https://github.com/pakalexunse/qnckpju/commit/e19c5552aecb997339c170223de89305ae88a798 
+卫视天途云： https://github.com/r0cch/hfqgyicc/commit/7f952b749f7ea5be944ab1f20311dabd18ee6d13 
+卫视地方台安徽农大： https://github.com/mahomandeidec-re/xwbqspvh/commit/663f9a35e739691b87399c5b50d4860a77a58bb8 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/r0cch/hfqgyicc/commit/393c7ab154f0a2c04cd2e8fed2dededc6581d5f1 
+央视卫视广西移动直播源： https://github.com/prest2targe/xnucux/commit/1ceaa1f84227656d189908745a98bda0f7576629 
+付费频道直播源： https://github.com/pakalexunse/qnckpju/commit/7bb06bd2f8314cb982639f659c9af637f40fb10e 
+国家直播源多个全部有效： https://github.com/mahomandeidec-re/xwbqspvh/commit/0affda384f6556b7e8ccdab75a9ddfac3bf6ea14 
+直播源全部有效： https://github.com/r0cch/hfqgyicc/commit/2d779697fb1ec42a6a2931c5d0078d4e9e9f0167 
+全部有效： https://github.com/prest2targe/xnucux/commit/6cf592449e42eebaf9a1f677a3bbc51039d67614 
+直播源全部有效老电脑别用： https://github.com/pakalexunse/qnckpju/commit/b22304dfb1aea79db08103ec46b8d7b316a67ba6 
+影视剧场全部流畅： https://github.com/mahomandeidec-re/xwbqspvh/commit/9abfcea7d4b2c67ebab5cdfd26dda56ce5942f44 
+全部可用： https://github.com/r0cch/hfqgyicc/commit/2ce4f1a9a956c5de99ae32ce615efba2c195b261 
+我的播放源： https://github.com/prest2targe/xnucux/commit/8ad621c725b8794494b7dfb1b09d232b9c08fc53 
+其他直播源 不确定有效性： https://github.com/pakalexunse/qnckpju/commit/52b8e9726b5bf3b0d08a0c044e5b0b8c41e1ebc2 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/f9de1162dafa0c92acf9ea8d987a21a6acc46bd8 
+新疆 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/8a740107fa25ab36aa01f2cbaf71859d1d3ab8cd 
+内蒙古联通 udp 组播下载地址： https://github.com/prest2targe/xnucux/commit/079dbc191db0ed4f8d22278f4256a2d5b1d34489 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/06b37c53e55fa7d508010d71c0a208ec56b2ba23 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/6cfdf23c70211001fa1ffd7707308e750566acae 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/ecfd050c3eab82a4cd6927cc3bec39a443549b4e 
+内蒙古 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/e6921650e74969cfa230868cafab42740e84420a 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/a63228b554d663e97a4cf777168d6f0cedbc888b 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/aabb8175297713e74e2b70b9b3fd9feb35966c16 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/ae5502b6bf110cd5d4629e9a61c28604a4077cd3 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/5b229f8973824b465fe104be934c93f5a7825753 
+黑龙江 IPTV 直播源： https://github.com/r0cch/hfqgyicc/commit/2fddc03318a5c4fb1a232707c558013d191a923a 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/1d613891b764591f55784ce6132c07f72b3a8f18 
+吉林 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/fb1e9fec7fd93a23e7a2333af2338ab54681bb1a 
+辽宁移动直播源下载地址： https://github.com/prest2targe/xnucux/commit/450c054d43eaee7be10ee9397c6b4eb578619f88 
+辽宁电信 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/e11fb67f3e299f2f4b9f9bcd1cf0c3a0d911bd76 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/122cae1b64aed947addff95cfb3d932ab6ab03f4 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/0ba0eafd80bb9a07f37620d16013c8be364d7387 
+辽宁联通 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/acd6b6062ac31919de82bb1d38f22d43bd0654ba 
+辽宁 IPTV 直播源： https://github.com/prest2targe/xnucux/commit/725c279e53f0c99e94a30b68716b48f8a6da7ef8 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/ea8b9ce69c9d5b486e33f9595c960804bfc1e9fc 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/ad660df9230429cd58ee43042c605cc82c227b52 
+浙江联通 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/5a2041a1c8ce5a92bd982d75cca85bc83a7eda6d 
+浙江移动 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/07f106355e9ec8d004323afa8b2e8695671f42ce 
+浙江 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/ba253a1b665ca8216b0f7cc5f7df914380c944ec 
+江西联通 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/f44d3a4b474b097b45db98a26eb1b028b8c66624 
+江西电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/a5ccd3250c628cf2b2968e3c3a2b9769244e7839 
+江西电信 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/6ad6fe3435570b52c9511e75bbd2f24e656b39f6 
+江西移动 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/1231c0481aec91f4aad4523d4a7fbcb25bfcdb37 
+江西 IPTV 直播源： https://github.com/pakalexunse/qnckpju/commit/377feb4b5492bc4bdad0d8b7db48841f62552dfc 
+江苏移动 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/36e6b136db193bcfbaeacb3c6cee4f891924e6b7 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/a6833aaec475f8d78fcda7ced2a3d864d2b26fe0 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/0c10201079e669704761b5d89215cd8a76eec38d 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/a121ff78ee5987f9bd1a854c2872d654e2eb5912 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/4745efbcfafaf035892e4c31f5289d579732cda7 
+江苏电信 IPTV 直播源下载地址： https://github.com/pakalexunse/qnckpju/commit/afc0e161a7aabafacdf5b3930211da19b2668318 
+江苏 IPTV 直播源： https://github.com/mahomandeidec-re/xwbqspvh/commit/9e2f9525bc3d0bd608d8eac40409573c1698c32d 
+安徽广电 IPTV 直播源下载地址： https://github.com/prest2targe/xnucux/commit/604680a9aae91e5228e4307d9dc784c17f945903 
+海南电信组播 IPTV 直播源下载地址： https://github.com/r0cch/hfqgyicc/commit/22b78625dffde3ce420ba7e90763033537e3b952 
+海南联通组播 IPTV 直播源下载地址： https://github.com/mahomandeidec-re/xwbqspvh/commit/1c86b24c7c38a1302af8eacb9b2edb6a3f6dfb9f 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月20日17时17分18秒
+来源：https://github.com/pakalexunse/qnckpju/commit/1be1792c8d813d7d06edc6eb481d6ff187ed4b87 
+来源：https://github.com/prest2targe/xnucux/commit/69591b3c4c9d6482d095c534b0ab886fe8922002 
+来源：https://github.com/r0cch/hfqgyicc/commit/16cdf24cdd029f66968605e0e0270427ffd17319 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月20日17时17分18秒
